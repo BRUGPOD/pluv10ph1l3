@@ -4,7 +4,7 @@
 
 🥞༉‧₊˚ ￤ I'm nervous around people I haven't talked to, so please don't take offense if I don't answer you !
 
-ৎ🍱것. ￤ You can always find me sitting at docks when I'm online, I'll either be sitting where most tt/td people sit or by sosu !
+ৎ🍱것. ￤ You can always find me sitting at docks when I'm online, I'll be sitting by the boat/the lampost !
 
 🧺 ￤ I use he/him + Pluvi/Pluviself pronouns ! You do not have to use my neopronouns but you can !
 
